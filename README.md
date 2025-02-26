@@ -46,7 +46,7 @@ Based on the analysis, the following recommendations are proposed:
 
 - Increase marketing efforts targeting casual riders during the winter-spring season
 - Develop strategies to encourage more frequent weekend riding for members and midweek for casual riders
-- Evaluate the popularity of docked bikes and explore potential improvements.
+- Evaluate the popularity of electric scooter and explore potential improvements.
 - Prioritize upgrades and maintenance for the classic bike fleet.
 - Introduce longer-term rental options to attract casual riders.
 - Increase advertising and marketing efforts for e-bikes
